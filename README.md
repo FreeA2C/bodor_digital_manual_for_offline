@@ -1,0 +1,1 @@
+# bodor_digital_manual_for_offline
